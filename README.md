@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MrFuturistic09
+- 👋 Hi, I’m Desai Jineesh @MrFuturistic09
 - 👀 I’m interested in ... Codingggg, Gamingg
 - 🌱 I’m currently learning ...how to make money
 - 💞️ I’m looking to collaborate on ...
